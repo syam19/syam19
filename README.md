@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on security-focused web applications and open-source full-stack projects
 
-📫 How to reach me: syamchadalavada9@gmail.com
+📫 How to reach me: syamchadalavada19@gmail.com
 
 😄 Pronouns: he/him
 
